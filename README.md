@@ -1,0 +1,2 @@
+# Jazzearning
+Daily 5$
